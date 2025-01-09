@@ -1,0 +1,1 @@
+# Globe-Market-Intellect
